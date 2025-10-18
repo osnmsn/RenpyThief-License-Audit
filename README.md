@@ -1,1 +1,1 @@
-此存储库是为了调查Renpythief而存在的，有合作意向可联系dewajji407@gmail.com
+此存储库是调查Renpythief违反各项条例的，有意向帮助可联系dewajji407@gmail.com
